@@ -1,1 +1,2 @@
 # PROYECTO_FINAL_CASINO
+[VIDEO BASE](https://youtu.be/3s-P_2wKV6M?si=t_H8CXuUjFSsaon9)
